@@ -3,6 +3,9 @@ in here illness she write : "i appreciate to who i share" , to avoid her illness
 
 in madness she said sgnial it's not enoght 
 
+in her love she write : "dead is the way to appretiate"
+
+
 ## 5. Features Included:
 5.1 Visual Features:
 Responsive design for all screen sizes
