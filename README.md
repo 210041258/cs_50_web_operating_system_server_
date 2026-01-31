@@ -1,9 +1,5 @@
 # wrenbyayesha
-in here illness she write : "i appreciate to who i share" , to avoid her illness
 
-in madness she said sgnial it's not enoght 
-
-in her love she write : "dead is the way to appretiate"
 
 for here a live website : "https://210041258.github.io/wrenbyayesha/"
 
